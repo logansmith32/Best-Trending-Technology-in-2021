@@ -1,0 +1,2 @@
+# Best-Trending-Technology-in-2021
+Technology today is evolving at such a rapid pace, enabling faster change and progress, causing an acceleration of the rate of change, until eventually it will become exponential. However, it is not only technology trends and top technologies that are evolving, a lot more has changed this year due to the outbreak of COVID-19 making IT professionals realize that their role will not stay the same in the contactless world tomorrow. And an IT professional in 2020-21 will constantly be learning, unlearning and relearning.
